@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Supriya Agrahari
+- 👀 I’m interested in Sales & Marketing
+- 🌱 I’m currently learning Data Analysis
+- 💞️ I’m looking to collaborate on Data Analysis project
+- 📫 How to reach me LinkdeIn https://www.linkedin.com/in/supriyaagrahari/
